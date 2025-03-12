@@ -28,4 +28,4 @@
 
 ## Dashboard
 
-![5](https://github.com/user-attachments/assets/cb082338-7ac1-454c-a20e-cef72d2681a0)
+![5](https://github.com/user-attachments/assets/d9f9c8f3-50fc-4a04-aced-7e660c1c8b0a)
